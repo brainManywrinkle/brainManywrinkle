@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @brainManywrinkle
+- 👀 I’m new to coding
+- 🌱 I’m currently learning
+- 📫 Send me a discord message ---> streamsmurf
+- ♤ Gettem Ace
